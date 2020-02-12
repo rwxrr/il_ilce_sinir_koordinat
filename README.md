@@ -1,0 +1,1 @@
+# il_ilce_sinir_koordinat
